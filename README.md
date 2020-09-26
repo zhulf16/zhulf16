@@ -1,4 +1,9 @@
 ### Hi there 👋
+Selamat siang, dan selamat beraktifitas :)
+Sukses selalu
+
+jangan lupa follo ig @Zhulf16 
+.ThankYou
 
 <!--
 **zhulf16/zhulf16** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
