@@ -2,7 +2,7 @@
 Selamat siang, dan selamat beraktifitas :) <br>
 Sukses selalu
 
-jangan lupa follo ig @Zhulf16 <br>
+jangan lupa follow ig @Zhulf16 <br>
 .ThankYou
 
 <!--
